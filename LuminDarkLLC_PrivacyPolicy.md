@@ -24,7 +24,7 @@ Your Choices
 You have the following choices regarding the collection and use of your personal information:
 
 You can opt out of receiving marketing and promotional communications from us by clicking on the unsubscribe link in any email we send you.
-You can request that we delete your personal information by contacting us at [email protected]
+You can request that we delete your personal information by contacting us at barisyilmzconsole@gmail.com
 Security
 
 We take reasonable steps to protect the security of your personal information. However, no method of transmission over the internet or electronic storage is 100% secure. Therefore, we cannot guarantee the absolute security of your personal information.
@@ -35,7 +35,7 @@ We may update this Privacy Policy from time to time. If we make any significant 
 
 Contact Us
 
-If you have any questions about this Privacy Policy, please contact us at [email protected]
+If you have any questions about this Privacy Policy, please contact us at barisyilmzconsole@gmail.com
 
 Additional Information for Android App Users
 
@@ -49,5 +49,5 @@ Some of our apps may display third-party advertising. These advertisers may coll
 
 Children's Privacy
 
-We do not knowingly collect personal information from children under the age of 13. If you are a parent or guardian and you believe that your child has provided us with personal information, please contact us at [email protected] and we will take steps to delete the information.
+We do not knowingly collect personal information from children under the age of 13. If you are a parent or guardian and you believe that your child has provided us with personal information, please contact us at barisyilmzconsole@gmail.com and we will take steps to delete the information.
 
